@@ -136,5 +136,3 @@ The financial analysis suggests that an initial investment of approximately MVR 
 The Civil Service Commission is encouraged to consider the financial feasibility of the program and take the necessary steps to secure funding and implement the internship program.
 
 ---
-
-Please review these drafts and let me know if any further adjustments are needed.
